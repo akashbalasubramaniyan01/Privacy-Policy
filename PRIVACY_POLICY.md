@@ -80,5 +80,5 @@ We may update this policy from time to time. We will notify you of any significa
 ## 9. Contact Us
 
 If you have questions about this Privacy Policy, please contact:  
-**Email:** [support@example.com](mailto:support@example.com)  
-**Address:** [Company Address]
+**Email:** [akashkannan7139@gmail.com](akashkannan7139@gmail.com)  
+**Address:** [6/5, South Rd, CIT Nagar West, Nandanam, Chennai, Tamil Nadu 600035]
